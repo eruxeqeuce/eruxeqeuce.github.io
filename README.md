@@ -1,1 +1,1 @@
-# eruxeqeuce.github.io
+# foryou
